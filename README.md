@@ -1,0 +1,1 @@
+# synent-task6-customersegmentation-Megh_Chauhan
